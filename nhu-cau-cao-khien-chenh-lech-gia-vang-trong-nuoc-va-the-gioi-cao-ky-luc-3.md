@@ -1,7 +1,7 @@
 Nhu cầu cao khiến chênh lệch giá vàng trong nước và thế giới cao kỷ lục
 =======================================================================
 
-[:gift:read more:gift:](https://hddtvn.com/nhu-cau-cao-khien-chenh-lech-gia-vang-trong-nuoc-va-the-gioi-cao-ky-luc-3/)Giá vàng vẫn chờ cơ hội đi lên. Ghi nhận lúc 9 giờ ngày 6/2 theo giờ Việt Nam, giá vàng giao dịch trên sàn điện tử Comex quay đầu phục hồi hơn 20 USD/ounce so với cùng thời điểm hôm qua, lên mức 1.813 USD/ounce. Hiện thị trường vẫn theo sát các tín hiệu …
+[:gift:Xem chi tiết ở đây:gift:](https://hddtvn.com/nhu-cau-cao-khien-chenh-lech-gia-vang-trong-nuoc-va-the-gioi-cao-ky-luc-3/)Giá vàng vẫn chờ cơ hội đi lên. Ghi nhận lúc 9 giờ ngày 6/2 theo giờ Việt Nam, giá vàng giao dịch trên sàn điện tử Comex quay đầu phục hồi hơn 20 USD/ounce so với cùng thời điểm hôm qua, lên mức 1.813 USD/ounce. Hiện thị trường vẫn theo sát các tín hiệu …
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
